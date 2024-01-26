@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ChillyAstronox
+- 👀 I’m interested in Video Games
+- 🌱 I’m currently learning Nothing
+- 💞️ I’m looking to collaborate on Game Develoment
+- 📫 How to reach me on discord: lucidastronox
+- 😄 Pronouns: they/them
+- ⚡ Fun fact: I Hacked 57 Discord Accounts (just for fun)
